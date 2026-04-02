@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RUGJ011005MSLBTSA1
+RUGJ011005MSLBTSA1
